@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kinyuacollins
 - 👀 I’m interested in developing softwares
-- 🌱 I’m currently learning new codes
+- im a web developer
 - 💞️ I’m looking to collaborate with esteemed professionals.
 - 📫 How to reach me :0740825494
 - 😄 Pronouns: collo kinz
